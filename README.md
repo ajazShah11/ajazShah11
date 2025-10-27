@@ -1,7 +1,7 @@
 💫 Hi, I'm Mohammad Ajaz Shah
 **Full Stack AI Engineer || AI Enthusiast**
 
-Email Me 👉 ✉️ **..........** For Collaboration/Project or Anything Else. 😊😊
+Full Stack AI Engineer || AI Enthusiast 
 
 Email Me 👉 ✉️ **..........** For Collaboration/Project or Anything Else. 😊😊
 
