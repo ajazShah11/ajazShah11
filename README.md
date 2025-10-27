@@ -3,6 +3,8 @@ Full Stack AI Engineer || AI Enthusiast**
 
 Email Me 👉 ✉️ **..........** For Collaboration/Project or Anything Else. 😊😊
 
+Email Me 👉 ✉️ **..........** For Collaboration/Project or Anything Else. 😊😊
+
 - 🔭 **I’m currently working on:** 
 - 🌱 **I’m currently learning:** ML/AI
 - 👯 **I’m looking to collaborate on:** 
