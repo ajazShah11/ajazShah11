@@ -1,5 +1,4 @@
 💫 Hi, I'm Mohammad Ajaz Shah
-**Full Stack AI Engineer || AI Enthusiast**
 
 Full Stack AI Engineer || AI Enthusiast 
 
